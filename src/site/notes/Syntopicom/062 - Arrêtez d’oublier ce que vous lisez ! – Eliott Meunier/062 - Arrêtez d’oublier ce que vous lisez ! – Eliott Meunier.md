@@ -68,11 +68,12 @@ Eliott Meunier affirme que lire sans retenir, c’est perdre du temps. Son livre
 
 
 
-Avec cette méthode, tu ne subiras plus l’oubli. Tu sauras sélectionner les bons contenus, les stocker efficacement, les retrouver instantanément, approfondir un domaine, générer des idées innovantes et appliquer tes connaissances au quotidien. #promesse
+En suivant cette méthode, tu arrêteras d’oublier ce que tu lis. Tu construiras un savoir vivant, réutilisable et créatif, capable d’alimenter ta carrière, tes projets et ton développement personnel. #promesse
 
 ---
 
 </div></div>
+
 
 
 </div></div>

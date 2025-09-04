@@ -68,11 +68,12 @@ Hollins défend l’idée que devenir polymathe n’est pas réservé à une él
 
 
 
-En suivant ses principes, tu apprendras à acquérir rapidement de nouvelles compétences, à penser de manière flexible et à saisir des opportunités inattendues. Tu pourras devenir une version plus complète de toi-même, capable de briller dans plusieurs domaines. #promesse
+En appliquant ces principes, tu apprendras à multiplier tes compétences, à penser de façon flexible et à exploiter un savoir diversifié. Tu pourras transformer chaque domaine exploré en ressource pour créer ta propre voie. #promesse
 
 ---
 
 </div></div>
+
 
 
 </div></div>

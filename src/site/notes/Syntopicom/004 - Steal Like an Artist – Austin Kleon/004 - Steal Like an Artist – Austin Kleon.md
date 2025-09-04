@@ -68,11 +68,13 @@ Le message de Kleon est simple : rien n’est complètement original. Tout créa
 
 
 
-En suivant ses dix principes, tu apprendras à libérer ta créativité, à dépasser le blocage de l’originalité, à pratiquer chaque jour et à partager ton travail avec le monde. Kleon promet que chacun peut mener une vie créative, à condition d’oser s’inspirer et expérimenter. #promesse
+En appliquant ses dix principes, tu apprendras à transformer tes influences en créations personnelles, à pratiquer chaque jour, à partager ton travail et à rester curieux. Kleon promet que la créativité n’est pas un don rare, mais une discipline accessible à tous. #promesse
 
 ---
 
 </div></div>
+
+
 
 
 </div></div>
