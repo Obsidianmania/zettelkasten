@@ -440,7 +440,7 @@ Avec seulement 18 minutes de discipline, tu transformes ta journée en un espace
 
 ### 📚 Les livres compagnons
 
-[[Syntopicom/001 - How to Take Smart Notes - Sönke Ahrens/001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
+[[001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
 [[Syntopicom/002 - How to Read a Book - Mortimer J Adler Charles Van Doren/002 - How to Read a Book - Mortimer J Adler Charles Van Doren\|002 - How to Read a Book - Mortimer J Adler Charles Van Doren]]  
 [[Syntopicom/004 - Steal Like an Artist – Austin Kleon/004 - Steal Like an Artist – Austin Kleon\|004 - Steal Like an Artist – Austin Kleon]]  
 [[Syntopicom/005 - Avalez le crapaud! - Brian Tracy/005 - Avalez le crapaud! - Brian Tracy\|005 - Avalez le crapaud! - Brian Tracy]]  

@@ -461,7 +461,7 @@ En suivant cette méthode, tu arrêteras d’oublier ce que tu lis. Tu construir
 
 ### 📚 Les livres compagnons
 
-[[Syntopicom/001 - How to Take Smart Notes - Sönke Ahrens/001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
+[[001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
 [[Syntopicom/002 - How to Read a Book - Mortimer J Adler Charles Van Doren/002 - How to Read a Book - Mortimer J Adler Charles Van Doren\|002 - How to Read a Book - Mortimer J Adler Charles Van Doren]]  
 [[Syntopicom/003 - 18 minutes pour être efficace/003 - 18 minutes pour être efficace - Peter Bregman\|003 - 18 minutes pour être efficace - Peter Bregman]]  
 [[Syntopicom/004 - Steal Like an Artist – Austin Kleon/004 - Steal Like an Artist – Austin Kleon\|004 - Steal Like an Artist – Austin Kleon]]  

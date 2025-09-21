@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/001-how-to-take-smart-notes-soenke-ahrens/","title":"How to Take Smart Notes","tags":["📚Book"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/001-how-to-takes-smart-notes/001-how-to-take-smart-notes-soenke-ahrens/","title":"How to Take Smart Notes","tags":["📚Book"],"noteIcon":""}
 ---
 
 ![[001.jpg\|001.jpg]]

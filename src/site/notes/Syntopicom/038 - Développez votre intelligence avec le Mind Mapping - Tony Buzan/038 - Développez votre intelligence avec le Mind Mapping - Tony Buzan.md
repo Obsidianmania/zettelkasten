@@ -503,7 +503,7 @@ Avec le mind mapping, tu peux apprendre plus vite, mémoriser mieux, être plus 
 
 ### 📚 Les livres compagnons
 
-[[Syntopicom/001 - How to Take Smart Notes - Sönke Ahrens/001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
+[[001 - How to Take Smart Notes - Sönke Ahrens\|001 - How to Take Smart Notes - Sönke Ahrens]]  
 [[Syntopicom/002 - How to Read a Book - Mortimer J Adler Charles Van Doren/002 - How to Read a Book - Mortimer J Adler Charles Van Doren\|002 - How to Read a Book - Mortimer J Adler Charles Van Doren]]  
 [[Syntopicom/003 - 18 minutes pour être efficace/003 - 18 minutes pour être efficace - Peter Bregman\|003 - 18 minutes pour être efficace - Peter Bregman]]  
 [[Syntopicom/004 - Steal Like an Artist – Austin Kleon/004 - Steal Like an Artist – Austin Kleon\|004 - Steal Like an Artist – Austin Kleon]]  
