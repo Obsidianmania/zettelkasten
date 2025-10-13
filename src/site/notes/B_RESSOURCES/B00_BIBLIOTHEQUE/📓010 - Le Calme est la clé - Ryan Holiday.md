@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/010-le-calme-est-la-cle-ryan-holiday/","title":"Le Calme est la clé","tags":["📓Book"],"noteIcon":""}
 ---
 
-
+![Le Calme est la clé - Ryan Holiday.jpg](/img/user/B_RESSOURCES/B99_MEDIA/Le%20Calme%20est%20la%20cl%C3%A9%20-%20Ryan%20Holiday.jpg)
 # Catégories : 
 Self-Help
 

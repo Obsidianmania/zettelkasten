@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/006-commencer-par-pourquoi-simon-sinek/","title":"Commencer par pourquoi","tags":["📓Book"],"noteIcon":""}
 ---
 
-
+![150][commencer_par_pourquoi.jpg]
 # Catégories : 
 
 

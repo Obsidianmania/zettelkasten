@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/009-la-tribu-des-mentors-quand-les-plus-grands-nous-inspirent-timothy-ferriss/","title":"La tribu des mentors, quand les plus grands nous inspirent","tags":["📓Book"],"noteIcon":""}
 ---
 
-
+![La tribu des mentors quand les plus grands nous inspirent - Timothy Ferriss.jpg](/img/user/B_RESSOURCES/B99_MEDIA/La%20tribu%20des%20mentors%20quand%20les%20plus%20grands%20nous%20inspirent%20-%20Timothy%20Ferriss.jpg)
 # Catégories : 
 Business & Economics
 

@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/008-la-louange-cle-de-l-intercession-stormie-omartian/","title":"La louange, clé de l'intercession","tags":["📓Book"],"noteIcon":""}
 ---
 
-
+![150][la-louange-cle-de-l-intercession.net_448x700.jpg]
 # Catégories : 
 
 
