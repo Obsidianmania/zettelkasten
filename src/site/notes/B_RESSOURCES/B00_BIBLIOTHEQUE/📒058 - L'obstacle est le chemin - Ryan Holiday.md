@@ -1,0 +1,10 @@
+---
+{"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/058-l-obstacle-est-le-chemin-ryan-holiday/","title":"L'obstacle est le chemin","tags":["📓Book"],"noteIcon":""}
+---
+
+
+# 🗂 Catégories 
+Self-Help
+
+# 📍Le message de l'auteur
+Il y a près de 2000 ans., l’empereur romain Marc Aurèle écrivait : « Mes activités peuvent bien être entravées, mais mon élan spontané et ma disposition ne peuvent être entravés, parce que je puis choisir entre mes actes et renverser l’obstacle. L’intelligence, en effet, pour tendre au but qui la guide, renverse et déplace tout obstacle à son activité. Ce qui suspendait cette action devient action, et route ce qui barrait cette route. » À travers les siècles, nombreux sont ceux qui ont recouru au stoïcisme pour surmonter leurs difficultés. Outre les Grecs et les Romains dans l’Antiquité, Frédéric II, Montaigne, Thomas Jefferson, George Washington, Adam Smith et Théodore Roosevelt figuraient au rang des adeptes de cette école de pensée. Chaque année, l’ancien président américain Bill Clinton étudie les textes de Marc Aurèle. De même, Wen Jiabao, ancien Premier ministre chinois, a lu ses Pensées pour moi-même « plus d’une centaine de fois ». S’inspirant de cette école de pensée, Ryan Holiday nous emmène dans un voyage à travers le temps et nous explique comment utiliser les principes éminents du stoïcisme pour transformer les obstacles en opportunités. Ryan HOLIDAY est consultant en communication et a travaillé pour de nombreux auteurs best-sellers et musiciens multi-récompensés. Il a également été directeur de la communication chez American Apparel pendant de nombreuses années. Ses campagnes publicitaires ont servi d’études de cas pour Twitter, YouTube ou Google. Il est également l’auteur des deux best-sellers internationaux Trust Me, I’m Lying: Confessions of a Media Manipulator et Ego is the enemy.
