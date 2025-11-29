@@ -5,6 +5,62 @@
 
 # 🗂 Catégories 
 Religion
+Imagine écrire une chanson qui ne s’éteint pas à la dernière note.  
+Une mélodie qui touche le ciel et le cœur en même temps.  
+Dans _Writing Worship_, tu découvres l’art d’écrire pour Dieu —  
+et avec Lui.
+
+Ce livre t’apprend à relier technique et foi,  
+structure et inspiration,  
+authenticité et excellence.  
+Il parle autant d’écriture que de posture spirituelle.  
+Écrire n’est plus une performance,  
+mais un acte de louange.
+
+En **développement personnel** :  
+🦸🏽‍♂️🟪🟪🟪🟪⬛️  
+Tu développes une discipline créative,  
+ancrée dans la foi et l’humilité.
+
+En **relations** :  
+💖🟪🟪🟪⬛️⬛️  
+Écrire pour le culte, c’est servir les autres.  
+Chaque mot devient un pont entre âmes.
+
+Pour **l’argent** :  
+💰⬛️⬛️⬛️⬛️⬛️  
+Le propos est spirituel, pas commercial.
+
+Pour **la santé** :  
+🍏🟪⬛️⬛️⬛️⬛️  
+Créer apaise, libère, recentre.  
+Une vraie respiration intérieure.
+
+Alors pourquoi lire ce livre ?
+
+Parce qu’il te rappelle ceci :
+
+> “Tu n’écris pas pour être entendu.  
+> Tu écris pour qu’Il soit honoré.”
+
+Ce livre est un atelier sacré.  
+Tu y apprends que la louange est un dialogue,  
+et que la créativité,  
+lorsqu’elle est connectée au divin,  
+devient une forme de prière.
+
+Si tu veux écrire des chants qui portent la foi,  
+ou simplement créer avec plus de sens…
+
+Ce livre te guide vers une écriture inspirée.
+
+> [!tip] 🚀 **Passe à l’action**  
+> Écris aujourd’hui **une phrase simple**  
+> qui exprime ta gratitude envers Dieu.  
+> Peu importe la rime.  
+> Ce que tu offres avec sincérité devient louange.
+
+
 
 # 📍Le message de l'auteur
 ## 🙌 Écrire l’Adoration : Composer des Chants Authentiques pour l’Église

@@ -4,6 +4,62 @@
 
 
 # 🗂 Catégories 
+Imagine vivre une vie chrétienne bien organisée :  
+les réunions s’enchaînent,  
+les chants s’élèvent,  
+les projets avancent…  
+et pourtant, un **Silence**.  
+Quelqu’un manque.  
+L’Esprit Saint.
+
+Dans _Dieu oublié_, Francis Chan expose une réalité troublante :  
+nous parlons beaucoup de Dieu le Père,  
+nous célébrons Jésus le Fils,  
+mais **où est le Saint-Esprit dans tout cela ?**  
+Ce livre ravive la puissance,  
+la joie,  
+le feu qui a été promis au croyant.
+
+En **développement personnel** :  
+🦸🏽‍♂️🟪🟪🟪⬛️⬛️  
+Grandir spirituellement,  
+c’est laisser l’Esprit former ton caractère.
+
+En **relations** :  
+💖🟪⬛️⬛️⬛️⬛️  
+L’Esprit unit, pacifie et restaure,  
+mais le livre s’adresse d’abord à ton cœur.
+
+Pour **l’argent** :  
+💰⬛️⬛️⬛️⬛️⬛️  
+Aucun propos financier.
+
+Pour **la santé** :  
+🍏⬛️⬛️⬛️⬛️⬛️  
+Le bénéfice est intérieur avant tout.
+
+Alors pourquoi lire ce livre ?
+
+Parce qu’il remet sur la table une question brûlante :
+
+> “Vivons-nous une vie que **seul l’Esprit** peut expliquer ?”
+
+Ce livre t’invite à sortir du christianisme routinier,  
+à redécouvrir la présence vivante de Dieu,  
+et à marcher dans une dépendance confiante  
+plutôt qu’une stratégie humaine.
+
+Si tu veux une foi vibrante,  
+si tu veux retrouver la passion,  
+si tu veux plus que des paroles…
+
+Ce livre rallume la flamme du Consolateur.
+
+> [!tip] 🚀 **Passe à l’action**  
+> Prie simplement aujourd’hui :  
+> **“Saint-Esprit, révèle-moi Ta présence aujourd’hui.”**  
+> Reste attentif à ce qui se passe ensuite.
+
 
 
 # 📍Le message de l'auteur

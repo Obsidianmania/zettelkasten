@@ -24,7 +24,7 @@ Mais ce n’est pas son cœur.
 
 En **relations** :  
 💖🟪⬛️⬛️⬛️⬛️  
-Tu pourrais mieux communiquer tes idées, oui… mais ce n’est qu’une retombée secondaire.
+Tu pourrais mieux communiquer tes idées, oui… mais ce n’est [[qu’une\|qu’une]] retombée secondaire.
 
 Pour la **santé** :  
 🍏🟪⬛️⬛️⬛️⬛️  

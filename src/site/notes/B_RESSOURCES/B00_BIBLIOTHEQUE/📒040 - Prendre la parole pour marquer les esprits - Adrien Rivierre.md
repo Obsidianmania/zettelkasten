@@ -4,6 +4,64 @@
 
 
 # 🗂 Catégories 
+Imagine une audience.  
+Certains sont distraits, d’autres sceptiques,  
+d’autres fatigués.  
+Tu montes sur scène.  
+Tu as quelques secondes pour capter leur attention…  
+et peut-être changer quelque chose en eux.
+
+Dans _Prendre la parole pour marquer les esprits_, tu découvres  
+que le discours n’est pas un alignement de mots,  
+mais une **expérience**.  
+Tu apprends à structurer ton message,  
+à utiliser des histoires,  
+à gérer tes silences,  
+et à transformer tes idées en émotions.
+
+En **développement personnel** :  
+🦸🏽‍♂️🟪🟪🟪🟪⬛️  
+Parler, c’est se montrer.  
+Ce livre t’endurcit intérieurement.
+
+En **relations** :  
+💖🟪🟪🟪🟪⬛️  
+Tu deviens plus convaincant,  
+plus clair,  
+plus connecté.
+
+Pour **l’argent** :  
+💰🟪🟪🟪⬛️⬛️  
+Une bonne prise de parole ouvre des opportunités,  
+des collaborations,  
+et peut parfois changer une carrière.
+
+Pour **la santé** :  
+🍏⬛️⬛️⬛️⬛️⬛️  
+Pas de dimension corporelle marquée,  
+si ce n’est la gestion du stress.
+
+Alors pourquoi lire ce livre ?
+
+Parce qu’il révèle un secret que peu comprennent :
+
+> “Ce n’est pas ce que tu dis  
+> qui marque les esprits.  
+> C’est ce que les autres **ressentent** en t’écoutant.”
+
+Tu apprends à incarner ton message,  
+à utiliser ta voix comme un instrument,  
+et à graver ton idée dans la mémoire collective.
+
+Si tu veux inspirer, enseigner, vendre, motiver…  
+prise de parole rime avec **impact**.
+
+> [!tip] 🚀 **Passe à l’action**  
+> Lors de ta prochaine explication,  
+> ajoute **une histoire** de 20 secondes.  
+> Tu sentiras immédiatement  
+> l’attention se rassembler.
+
 
 
 # 📍Le message de l'auteur

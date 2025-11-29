@@ -4,6 +4,58 @@
 
 
 # Catégories : 
+Imagine un amour si vaste que le langage peine à le contenir.  
+Pas sentimental, pas flou, pas tiède.  
+Un amour qui renverse, qui interpelle, qui dérange.  
+Francis Chan ne t’invite pas à une foi confortable…  
+mais à une relation **passionnée** avec Dieu.
+
+Dans _Crazy Love_, tu découvres que la spiritualité n’est pas une habitude du dimanche,  
+mais une réponse totale à l’amour extravagant de Dieu.  
+Tu explores la radicalité, l’authenticité,  
+et l’humilité qui naissent de cette rencontre.
+
+En **développement personnel** :  
+🦸🏽‍♂️🟪🟪🟪⬛️⬛️  
+Tu examines ton cœur, tes priorités,  
+tes motivations réelles.
+
+En **relations** :  
+💖🟪🟪🟪🟪🟪  
+L’amour de Dieu devient le miroir  
+qui répare, inspire, et guide tes propres relations.
+
+Pour **l’argent** :  
+💰⬛️⬛️⬛️⬛️⬛️  
+Ce livre ne cherche pas à enseigner la finance.
+
+Pour **la santé** :  
+🍏🟪⬛️⬛️⬛️⬛️  
+Il restaure la paix intérieure,  
+mais ne parle pas du corps.
+
+Alors pourquoi lire ce livre ?
+
+Parce qu’il te murmure une question profonde :
+
+> “As-tu domestiqué Dieu,  
+> ou as-tu accepté qu’il est plus grand que tes plans ?”
+
+Ce livre secoue les croyants endormis  
+et réveille la joie d’une foi vivante.  
+Il t’invite à aimer sans demi-mesure,  
+à vivre la grâce avec intention.
+
+Si ta relation spirituelle s’est refroidie,  
+si tu sens un automatisme pieux,  
+_Crazy Love_ allume un feu.
+
+> [!tip] 🚀 **Passe à l’action**  
+> Note trois choses dans ta vie  
+> pour lesquelles tu peux remercier aujourd’hui.  
+> Dis-le à haute voix.  
+> L’amour devient réel quand il est exprimé.
+
 
 
 # Le message de l'auteur

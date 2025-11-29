@@ -171,4 +171,4 @@ Louer, ce n’est pas seulement adorer : c’est combattre, protéger et libére
     
 - [[087 - Adoration et louange dans l’Eglise - Matt Redman\|087 - Adoration et louange dans l’Eglise - Matt Redman]] — Redman et Omartian convergent sur la puissance de la louange, l’un pour la communauté, l’autre pour l’intercession.
     
-- [[B_RESSOURCES/B00_BIBLIOTHEQUE/📒079 - Splendeur dans le secret - E.M Bounds\|📒079 - Splendeur dans le secret - E.M Bounds]] — Bounds approfondit la prière cachée, Omartian insiste sur la louange qui en amplifie la puissance.
+- [[B_RESSOURCES/B00_BIBLIOTHEQUE/📒079 - Splendeur dans le secret - E.M. Bounds\|📒079 - Splendeur dans le secret - E.M. Bounds]] — Bounds approfondit la prière cachée, Omartian insiste sur la louange qui en amplifie la puissance.

@@ -4,6 +4,60 @@
 
 
 # 🗂 Catégories 
+Imagine un homme ordinaire.  
+Pas de costume trois pièces, pas de millions en banque,  
+juste un type normal… mais avec des **rituels puissants**.  
+Ce livre te montre que le succès ne dépend pas du génie,  
+mais de la **constance**.
+
+Dans _Average Joe’s: Success Rituals_, tu découvres comment les petites actions quotidiennes  
+construisent des résultats extraordinaires :  
+habitudes matinales, gestion du focus, gratitude, discipline.  
+Ce n’est pas un livre de théorie,  
+c’est un manuel de mise en pratique.
+
+En **développement personnel** :  
+🦸🏽‍♂️🟪🟪🟪🟪⬛️  
+Chaque rituel est une brique d’identité.  
+Tu passes du rêve à la routine.
+
+Pour **l’argent** :  
+💰🟪🟪🟪⬛️⬛️  
+Les habitudes de réussite  
+sont à la base de la stabilité financière.
+
+En **relations** :  
+💖🟪⬛️⬛️⬛️⬛️  
+Une meilleure discipline personnelle  
+améliore ton équilibre social,  
+mais ce n’est pas le sujet central.
+
+Pour **la santé** :  
+🍏🟪🟪⬛️⬛️⬛️  
+Les rituels incluent souvent  
+sommeil, alimentation, mouvement.
+
+Alors pourquoi lire ce livre ?
+
+Parce qu’il te rappelle une vérité simple :
+
+> “Tu n’as pas besoin d’être exceptionnel.  
+> Tu dois juste être constant.”
+
+Ce livre parle du pouvoir des **petites victoires**.  
+De la rigueur sans bruit.  
+De la persévérance quotidienne  
+qui rend les gens ordinaires… redoutables.
+
+Si tu veux sortir du “un jour je ferai”,  
+et entrer dans “je le fais tous les jours”,  
+ce livre te tend la main.
+
+> [!tip] 🚀 **Passe à l’action**  
+> Choisis **un rituel** que tu peux répéter dès demain matin.  
+> Rien d’extraordinaire — juste tenace.  
+> Le succès est une habitude, pas un miracle.
+
 
 
 # 📍Le message de l'auteur
