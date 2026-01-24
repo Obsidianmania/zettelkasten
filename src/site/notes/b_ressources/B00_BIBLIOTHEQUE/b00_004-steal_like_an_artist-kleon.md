@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-004-steal-like-an-artist-kleon/","title":"Steal Like an Artist 10th Anniversary Gift Edition with a New Afterword by the Author","tags":["📓Book"],"noteIcon":""}
 ---
 
-![[Steal Like An Artist - Austin Kleon.jpg\|Steal Like An Artist - Austin Kleon.jpg]]
+![Steal Like An Artist - Austin Kleon.jpg](/img/user/b_ressources/B99_MEDIA/Steal%20Like%20An%20Artist%20-%20Austin%20Kleon.jpg)
 # Catégories : 
 Art
 

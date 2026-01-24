@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-009-la-tribu-des-mentors-ferriss/","title":"La tribu des mentors, quand les plus grands nous inspirent","tags":["📓Book"],"noteIcon":""}
 ---
 
-![[b009.jpg\|b009.jpg]]
+![b009.jpg](/img/user/b_ressources/B99_MEDIA/b009.jpg)
 # Catégories : 
 Business & Economics
 

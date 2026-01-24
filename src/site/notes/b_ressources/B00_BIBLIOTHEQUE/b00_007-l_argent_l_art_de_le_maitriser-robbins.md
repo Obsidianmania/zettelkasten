@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-007-l-argent-l-art-de-le-maitriser-robbins/","title":"MONEY Master the Game","tags":["📓Book"],"noteIcon":""}
 ---
 
-![[MONEY Master the Game - Anthony Robbins Tony Robbins.jpg\|MONEY Master the Game - Anthony Robbins Tony Robbins.jpg]]
+![MONEY Master the Game - Anthony Robbins Tony Robbins.jpg](/img/user/b_ressources/B99_MEDIA/MONEY%20Master%20the%20Game%20-%20Anthony%20Robbins%20Tony%20Robbins.jpg)
 # Catégories : 
 Business & Economics
 

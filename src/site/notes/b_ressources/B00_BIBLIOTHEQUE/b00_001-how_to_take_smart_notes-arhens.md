@@ -4,7 +4,7 @@
 
 # 📒001 - How to Take Smart Notes - Sönke Ahrens
 
-![[b001.jpg\|b001.jpg]]
+![b001.jpg](/img/user/b_ressources/B99_MEDIA/b001.jpg)
 ## Catégories : 
 Self-Help
 

@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-002-how-to-read-a-book-adler-van-doren/","title":"How to Read a Book","tags":["📓Book"],"noteIcon":""}
 ---
 
-![[b002.jpg\|b002.jpg]]
+![b002.jpg](/img/user/b_ressources/B99_MEDIA/b002.jpg)
 # Catégories : 
 Language Arts & Disciplines
 
