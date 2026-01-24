@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-003-18-minutes-pour-etre-efficace-bregman/","title":"18 minutes pour être efficace","tags":["📓Book"],"noteIcon":""}
 ---
 
-_![[18 minutes pour être efficace - Peter Bregman.jpg\|18 minutes pour être efficace - Peter Bregman.jpg]]
+_![b003.jpg](/img/user/b_ressources/B99_MEDIA/b003.jpg)
 # Catégories : 
 Self-Help
 
