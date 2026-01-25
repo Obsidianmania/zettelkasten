@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/b-ressources/b00-bibliotheque/b00-006-commencer-par-pourquoi-sinek/","title":"Commencer par pourquoi","tags":["📓Book"],"noteIcon":""}
 ---
 
-![150][commencer_par_pourquoi.jpg]
+![150][b006.jpg]
 # Catégories : 
 Imagine une foule.  
 Elle avance, bouge, court parfois…  
