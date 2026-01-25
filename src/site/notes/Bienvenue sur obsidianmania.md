@@ -5,7 +5,7 @@
 Bienvenue dans l'univers Obsidianmania !
 
 
-[[b_ressources/B00_BIBLIOTHEQUE/b00_001-how_to_take_smart_notes-arhens\|b00_001-how_to_take_smart_notes-arhens]]
+[[b_ressources/B00_BIBLIOTHEQUE/b00_001-how_to_take_smart_notes-arhens\|📒001 - How to Take Smart Notes - Sönke Ahrens]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_002-how_to_read_a_book-adler-van_doren\|b00_002-how_to_read_a_book-adler-van_doren]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_003-18_minutes_pour_etre_efficace-Bregman\|b00_003-18_minutes_pour_etre_efficace-Bregman]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_004-steal_like_an_artist-kleon\|b00_004-steal_like_an_artist-kleon]]
@@ -102,7 +102,7 @@ Bienvenue dans l'univers Obsidianmania !
 [[b_ressources/B00_BIBLIOTHEQUE/b00_095-etre_un_leader_visionnaire-hyatt\|b00_095-etre_un_leader_visionnaire-hyatt]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_096-vous_allez_commettre_une_terrible_erreur-sibony\|b00_096-vous_allez_commettre_une_terrible_erreur-sibony]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_097-nouveau_manuel_de_manipulation-gilles-azzopardi\|b00_097-nouveau_manuel_de_manipulation-gilles-azzopardi]]
-[[b_ressources/B00_BIBLIOTHEQUE/b00_098-la_priere_des_freres-grenet\|b00_098-la_priere_des_freres-grenet]]
+[[b_ressources/B00_BIBLIOTHEQUE/b00_098-la_priere_des_freres-grenet\|📒098 - La prière des frères - Etienne Grenet]]
 [[b_ressources/B00_BIBLIOTHEQUE/b00_099-le_miracle_de_la_gratitude-dalle\|b00_099-le_miracle_de_la_gratitude-dalle]]
-[[b_ressources/B00_BIBLIOTHEQUE/b00_100-cessez_d_etre_gentil_soyez_vrai-d_ansembourg\|b00_100-cessez_d_etre_gentil_soyez_vrai-d_ansembourg]]
+[[b_ressources/B00_BIBLIOTHEQUE/b00_100-cessez_d_etre_gentil_soyez_vrai-d_ansembourg\|📒100 - Cessez d'être gentil soyez vrai! Édition illustrée - Thomas D'Ansembourg]]]
 
